@@ -28,7 +28,7 @@ Continuously exploring opportunities to enhance the system's capabilities with a
 
 ## Contact
 
-- **Email:** mohammedmujtaba.j@gmail.com
+- **Email:** asadansarise05@gmail.com
 
 ## Availability
 
